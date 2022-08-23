@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ddoggdiggitty
-- 👀 I love math 💖
+- 💖 I love math 💖
 
 
 <!---
