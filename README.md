@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ddoggdiggitty
-- 👀 I’m interested in math and computer science
+- 👀 I love math 💖
 
 
 <!---
